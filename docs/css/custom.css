@@ -1,6 +1,5 @@
 .md-header {
     background-image: url('../images/sfondo-navbar-1920.png'); /* Modifica il percorso in base alla posizione dell'immagine */
-    background-size: cover;  /* Assicura che l'immagine copra l'intera navbar */
     background-position: center;  /* Centra l'immagine */
     background-repeat: no-repeat;  /* Evita che l'immagine si ripeta */
 }
