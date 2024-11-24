@@ -2,6 +2,10 @@ site_name: My Docs
 site_url: https://mydomain.org/mysite
 theme:
   name: material
+
+extra_css:
+  - css/extra.css
+  
   palette:
 
     # Palette toggle for light mode
@@ -57,3 +61,6 @@ nav:
   - Tags: tags.md
   - Blog:
     - blog/index.md
+
+extra_css:
+  - css/custom.css  # Modifica il percorso in base alla posizione del tuo file CSS
