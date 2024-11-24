@@ -57,3 +57,6 @@ nav:
   - Tags: tags.md
   - Blog:
     - blog/index.md
+
+extra_css:
+  - css/custom.css  # Modifica il percorso in base alla posizione del tuo file CSS
