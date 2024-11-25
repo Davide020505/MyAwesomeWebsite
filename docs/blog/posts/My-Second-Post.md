@@ -8,15 +8,15 @@ tags:
 
 # Creazione di un sito web tramite MkDocs
 
-Obiettivo: Realizzazione di un sito web tramite Mkdocs 
+Obiettivo: Realizzazione di un sito web tramite Mkdocs. 
 
 ## Fase 1: 
-Scaricare Python
+Scaricare Python.
 
 ![Python](python.png)
 
 ## Fase 2:
-Crea una cartella dove andranno tutte le sottocartelle che comporranno il sito
+Crea una cartella dove andranno tutte le sottocartelle che comporranno il sito.
 
 ## Fase 3:
 Aprire Visual Studio Code ed entrare nella cartella precedentemente creata.

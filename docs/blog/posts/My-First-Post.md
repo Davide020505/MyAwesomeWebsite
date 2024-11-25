@@ -11,7 +11,7 @@ tags:
 Obiettivo: Pushare un file di testo all'interno di una repository nel proprio account di Github.
 
 ## Fase 1:
-Scaricare i programmi Git 
+Scaricare i programmi Git. 
 
 ![programmi git](programmi-git.png)
 
