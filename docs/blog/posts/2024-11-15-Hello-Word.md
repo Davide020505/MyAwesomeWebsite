@@ -1,11 +1,11 @@
 ---
-date: 2024-11-15
+date: 2024-11-04
 categories:
     - Documentation
 tags:
-    - MKDocs
+    - I miei lavori
 ---
 
-# My first blog post!
+# Esercitazione per imparare ad usare i programmi Git
 
 Today I learned how to deploy a documentation site!

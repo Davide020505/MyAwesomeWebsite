@@ -1,9 +1,9 @@
 ---
-date: 2024-11-16
+date: 2024-11-11
 categories:
     - Documentation
 tags:
-    - MKDocs
+    - I miei lavori
 ---
 
-# My second blog post!
+# Creazione di un sito web tramite MkDocs

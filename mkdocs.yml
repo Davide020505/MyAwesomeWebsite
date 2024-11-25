@@ -1,4 +1,4 @@
-site_name: My Docs
+site_name: Welcome to
 site_url: https://mydomain.org/mysite
 theme:
   name: material
@@ -53,7 +53,6 @@ nav:
     - Java: coding/my-first-java-file.md
   - About:
     - About Me: about/about.md
-    - Test1: about/test1.md
   - Tags: tags.md
   - Blog:
     - blog/index.md
