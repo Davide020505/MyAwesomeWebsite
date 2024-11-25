@@ -8,7 +8,7 @@ tags:
 
 # Creazione di un modello 3D tramite l'utilizzo di programmi vettoriali
 
-Obiettivo: Realizzazione di un modello 3D
+Obiettivo: Realizzazione di un modello 3D.
 
 ## Fase 1:
 Scaricare un qualsiasi programma che ti permetta di creare modelli 3D (in questo caso Rhinoceros).
