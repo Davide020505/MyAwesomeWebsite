@@ -40,4 +40,4 @@ Oggi noi del primo anno ci siamo divisi in 2 gruppi e abbiamo pensato alle segue
 
 • Hugging spot, un cerchio per terra in cui le persone sono incoraggiate ad abbracciarsi.
 
-• Costruire Piazza Garibaldi su Minecraft per fare varie sperimentazioni.
+• Costruire Piazza Garibaldi su Minecraft per fare varie sperimentazioni.
