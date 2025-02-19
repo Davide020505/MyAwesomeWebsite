@@ -8,9 +8,8 @@ tags:
 
 # Come mi sono divertito a Febbraio
 
-*07-02-25*
-
 # Esperienza gruppo MappaMondo
+*07-02-25*
 
 **1.	Esposizione delle tesi:** “Visione d’insieme” mondo didattico (cliccando su un luogo sul mondo, quel posto compare su uno schermo). PS. Sperimentazione del sollevamento del mondo tramite un cannone ad aria, Esperimento fattibile ma non possediamo la strumentazione adatta a sollevare un mondo di quelle dimensioni.
 
@@ -31,9 +30,8 @@ tags:
 **"Se non ti fermi, non sai cosa vuol dire muoversi/non sai come muoverti."**
 
 
-*10-02-25*
-
 # Sviluppo delle idee teoriche all'interno della pratica
+*10-02-25*
 
 Abbiamo deciso di dividerci in quattro sottogruppi:
 
@@ -46,9 +44,8 @@ Abbiamo deciso di dividerci in quattro sottogruppi:
 **4. Mondo Itinerante:** dedicato a montare insieme i video registrati durante il trasporto del mondo alla Pigna Secca.
 
 
-*17-02-25*
-
 # Incontro M.I.S.T.A.K.E.
+*17-02-25*
 
 **Parte 1: Analogia tra Schiuma Naturale e Schiuma Creata in Laboratorio**
 
@@ -73,9 +70,8 @@ Nel campo della stampa 3D, sono emersi numerosi progetti e gruppi che utilizzano
 Per la stampa 3D, è necessario utilizzare dei supporti durante il processo di costruzione, e sono disponibili diversi tipi di supporti a seconda delle necessità. Il PLA è uno dei materiali più facili da stampare, grazie alla sua versatilità e facilità di lavorazione.
 
 
-*18-02-25*
-
 # Nuovi gruppi di lavoro
+*18-02-25*
 
 Ci siamo divisi in gruppi a seconda delle liste che sono state create.
 Io sono finito nel gruppo "punti cospicui", il cui compito è quello di individuare tutti i punti di riferimento di piazza garibaldi o crearne di nuovi.
@@ -87,9 +83,8 @@ Fondata nel 2010, la scuderia automobilistica universitaria UniNa Corse ha lo sc
 Attraverso la scuderia, l'Università degli Studi di Napoli permette a tutti gli studenti del team di confrontarsi in una competizione internazionale, affinando le proprie competenze ed offrendo un'esperienza unica nel suo genere.
 
 
-*19-02-25*
-
 # Proseguimento del lavoro con il gruppo "Punti Cospicui"
+*19-02-25*
 
 Il gruppo durante la mattinata si è dedicato sviscerare il più possibile il significato di "punto cospicuo" e di trovare un modo per superare i confini della tipica e banale mappa.
 Nel pomeriggio ci siamo fusi con il gruppo "Trama del Territorio" per aiutarci a vicenda a trovare nuovi spunti per proseguire.
