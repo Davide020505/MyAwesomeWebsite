@@ -30,6 +30,7 @@ tags:
 
 **"Se non ti fermi, non sai cosa vuol dire muoversi/non sai come muoverti."**
 
+
 # Sviluppo delle idee teoriche all'interno della pratica
 
 Abbiamo deciso di dividerci in quattro sottogruppi:
