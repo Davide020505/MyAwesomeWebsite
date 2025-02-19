@@ -10,11 +10,11 @@ tags:
 
 ![Avatar](Avatar.jpg)
 
-![G1](G1.jpg)
+![G1](G1.png)
 
-![G2](G2.jpg)
+![G2](G2.png)
 
-![G3](G3.jpg)
+![G3](G3.png)
 
 ![Ant](Ant.jpg)
 
