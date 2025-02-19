@@ -50,39 +50,27 @@ Abbiamo deciso di dividerci in quattro sottogruppi:
 
 # Incontro M.I.S.T.A.K.E.
 
-esperimento far notare lanalogia tra la schiuma naturale (pop) e la schiuma creta in lab.
-il pop corn schiuma naturalmente, poiché il liquido all'interno vuole evaporare e spinge verso l'esterno.
-mais schiuma alimentare ma meno resistente > rinforzarlo significa non renderlo più biologico perché si aggiungono gli additivi .
-gli additivi sono più tossici della plastica stessa 
-il polimero lo scambiamo spesso per plastica ( quello che consideriamo polistirolo) ma ne esistono di diversi
-termoplastici e termoindurenti
-tp. rammollisce e può essere lavorato ed è riciclabile
-td. si indurisce e non può essere lavorato
-rispondono alla temperatura in maniera diversa
-Proprietà
-proprietà meccaniche: ottime se confrontati con altri materiali più pesanti 
-resistente chimicamente, dipende sempre dal polimero perché alcuni anche se esposti in ambienti caldi potrebbero rilasciare sostanze.
-è un materiale economico
-duttile e malleabile
-versatile
-elevate velocità di produce ione
-leggerezza
-proprietà di barriera, novità perché con la nascita del frigorifero si è pensato che si potesse allungare la vita dell'alimento .
-i polimeri sono un susseguirsi di carbonio e idrogeno.
-gli additivi si disperdono e molto spesso sono sostanze cancerogene.
- il problema della plastica è il fine vita, perché la degradazione crea micro plastiche che si disperdono nell'ambiente, potrebbe creare il bioaccumulo.
-alternativa alle plastiche: possiamo progettare, produrre e creare delle plastiche da fonti rinnovabili es pla. ma anche con mais, barbabietole da zucchero, da questo polimero si creano dei problemi tecnici, riguardanti la resistenza. si sta lavorando a migliorare questo aspetto, ma bisogna far attenzione a non aggiungere troppi additivi perché senno diventa tossico.
-il pla si può degradare in maniera naturale in determinate condizioni > tutti i polimeri a priori sono degradabili o biodegradabili
-il pla può essere lavorato allo stesso modo dei polimeri tradizionali.
-                             
+**Parte 1: Analogia tra Schiuma Naturale e Schiuma Creata in Laboratorio**
 
+L’esperimento mira a evidenziare l'analogia tra la schiuma naturale, come quella del pop corn, e la schiuma artificiale prodotta in laboratorio. Il pop corn si forma naturalmente come schiuma a causa dell'evaporazione del liquido contenuto nel chicco, che spinge verso l'esterno. Sebbene il mais sia un materiale che forma una schiuma alimentare, questa è meno resistente rispetto a quella creata artificialmente. Rinforzare la schiuma del mais, però, non la rende più biologica, poiché l'aggiunta di additivi compromette la sua naturalità. Gli additivi, infatti, risultano essere più tossici della plastica stessa.
 
-PARTE 2
-dietro la tecnologia della stampa , si sono creati diversi gruppi, diti dove vengono emersi dei progetti da usare per stamparli in 3D.
-modellazione cad e modellazione poligonale. cad tine controllo di ciò che si deve costruire, a livello matematico
-mentre l'altra la si usa quando lo scopo è organico.
-come base si devono usare dei supporti, ne esitono diversi tipi.
-pla è uno dei materiali più facili da stampare.
+Spesso si confonde il polimero con la plastica, in particolare con il polistirolo, ma esistono vari tipi di polimeri: termoplastici e termoindurenti. I polimeri termoplastici si ammorbidiscono con il calore, consentendo loro di essere lavorati e riciclati, mentre i termoindurenti si induriscono e non possono essere più lavorati. Questi polimeri rispondono alle variazioni di temperatura in modi differenti.
+
+**Proprietà dei Polimeri**
+
+Le proprietà meccaniche dei polimeri sono generalmente eccellenti, soprattutto se confrontati con altri materiali più pesanti. Sono resistenti chimicamente, anche se la resistenza dipende dal tipo di polimero, poiché alcuni, se esposti a temperature elevate, possono rilasciare sostanze tossiche. I polimeri sono anche economici, duttili, malleabili, e versatili, e la loro produzione è caratterizzata da elevata velocità. Tra i loro vantaggi vi è anche la leggerezza e le proprietà di barriera, che hanno acquisito rilevanza con l’introduzione del frigorifero, che ha esteso la durata degli alimenti.
+
+I polimeri sono composti da una sequenza di atomi di carbonio e idrogeno, ma gli additivi che vi vengono incorporati possono disperdersi nell'ambiente, con alcuni di essi che risultano cancerogeni. Il principale problema associato alla plastica è il suo smaltimento, poiché la sua degradazione produce microplastiche che si disperdono nell'ambiente e potrebbero causare bioaccumulo.
+
+**Alternative alla Plastica**
+
+Una valida alternativa alle plastiche tradizionali è rappresentata da materiali derivati da fonti rinnovabili, come il PLA (acido polilattico), ma anche il mais e la barbabietola da zucchero sono utilizzati per produrre polimeri. Tuttavia, questi polimeri presentano problematiche relative alla resistenza. Si sta lavorando per migliorare tali caratteristiche, ma è necessario evitare l’aggiunta eccessiva di additivi, che potrebbero renderli tossici. Il PLA, in particolare, può degradarsi naturalmente in determinate condizioni, anche se non tutti i polimeri sono biodegradabili o degradabili in modo naturale. Inoltre, il PLA può essere lavorato allo stesso modo dei polimeri tradizionali.
+
+**Tecnologie di Stampa 3D**
+
+Nel campo della stampa 3D, sono emersi numerosi progetti e gruppi che utilizzano diverse tecnologie per la creazione di oggetti tridimensionali. La modellazione CAD (Computer-Aided Design) e la modellazione poligonale sono due approcci fondamentali per la progettazione digitale. La modellazione CAD consente di avere un controllo preciso, matematicamente definito, su ciò che deve essere costruito, mentre la modellazione poligonale è impiegata quando l’obiettivo è ottenere forme più organiche.
+
+Per la stampa 3D, è necessario utilizzare dei supporti durante il processo di costruzione, e sono disponibili diversi tipi di supporti a seconda delle necessità. Il PLA è uno dei materiali più facili da stampare, grazie alla sua versatilità e facilità di lavorazione.
 
 
 *18-02-25*
@@ -97,8 +85,6 @@ Io sono finito nel gruppo "punti cospicui", il cui compito è quello di individu
 Fondata nel 2010, la scuderia automobilistica universitaria UniNa Corse ha lo scopo di progettare, realizzare e testare una monoposto per la partecipazione al Campionato Mondiale Studentesco di Formula Student.
 
 Attraverso la scuderia, l'Università degli Studi di Napoli permette a tutti gli studenti del team di confrontarsi in una competizione internazionale, affinando le proprie competenze ed offrendo un'esperienza unica nel suo genere.
-
-https://cteam.uninacorse.com/ 
 
 
 *19-02-25*
