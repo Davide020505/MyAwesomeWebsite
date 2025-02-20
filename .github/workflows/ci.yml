@@ -11,7 +11,7 @@ jobs:
 
     steps:
       - name: Checkout repository
-        uses: actions/checkout@v3
+        uses: actions/checkout@v4
 
       - name: Set up Python
         uses: actions/setup-python@v4
@@ -21,14 +21,13 @@ jobs:
       - name: Install dependencies
         run: |
           pip install mkdocs mkdocs-material
-          pip install mkdocs-video
 
       - name: Build MkDocs site
         run: |
           mkdocs build
 
       - name: Setup Pages
-        uses: actions/configure-pages@v5
+        uses: actions/configure-pages@v4
 
       - name: Upload artifact
         uses: actions/upload-pages-artifact@v3
