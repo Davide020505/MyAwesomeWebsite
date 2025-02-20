@@ -94,6 +94,11 @@ Nel pomeriggio ci siamo fusi con il gruppo "Trama del Territorio" per aiutarci a
 *20-02-25*
 
 Proseguimento del lavoro con il gruppo "Punti Cospicui" e gruppo "Trama del Territorio" con i quali si è parlato del funzionamento di uno scanner e di alcuni test svolti in precedenza.
-Verso Mezzogiorno, io e i miei compagni abbiamo allestito la dioscuri per ospitare la lezione della prof. di storia dell'arte contemporanea alla quale dovevamo partecipare noi del primo anno; io ed Emanuele abbiamo aggiustato uno sgabello rotto imparando ad utilizzare uno svitatore che ci è stato insegnato ad usare da Kekko del sesto anno.
+
+Verso Mezzogiorno, io e i miei compagni abbiamo allestito la dioscuri per ospitare la lezione della prof. di storia dell'arte contemporanea alla quale dovevamo partecipare noi del primo anno.
+
+Io ed Emanuele abbiamo aggiustato uno sgabello rotto imparando ad utilizzare uno svitatore che ci è stato insegnato ad usare da Kekko del sesto anno.
+
 Durante la pausa pranzo, io, Michele e Fabio siamo andati a comprare le cialde del caffè per la macchinetta del caffè del laboratorio.
+
 Finita la lezione di storia dell'arte contemporanea io e i miei compagni abbiamo sistemato dinuovo la dioscuri e successivamente anche il resto del laboratorio.
