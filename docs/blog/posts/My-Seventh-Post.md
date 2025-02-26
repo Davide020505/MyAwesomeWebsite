@@ -102,3 +102,21 @@ Io ed Emanuele abbiamo aggiustato uno sgabello rotto imparando ad utilizzare uno
 Durante la pausa pranzo, io, Michele e Fabio siamo andati a comprare le cialde del caffè per la macchinetta del caffè del laboratorio.
 
 Finita la lezione di storia dell'arte contemporanea io e i miei compagni abbiamo sistemato dinuovo la dioscuri e successivamente anche il resto del laboratorio.
+
+
+# Primo Stato dell'Arte
+*25/02/25* 
+
+Oggi tutto il laboratorio si è fermato per partecipare allo stato dell'arte. Durante la mattinata ogni gruppo ha esposto i propri progetti e i loro piani futuri, io e Michela abbiamo esposto le idee del gruppo "punti cospicui". 
+
+Durante il pomeriggio tutto il lab ha discusso dei punti esposti durante la mattinata e durante la conversazione si cercava di capire in che modo attraversa piazza garibaldi in modo più frequente e cercando di interagire con le persone del posto. 
+
+Verso la fine della conversazione, ho riproposto l'idea di portare il mondo in giro per piazza garibaldi e ad usarlo per interagire con le persone, idea che ha riscosso una grande approvazione da parte di tutto il laboratorio. 
+ 
+ 
+# Giornata normale
+*26/02/25* 
+
+Questa mattina tutto il laboratorio ha continuato la discussione avvenuta alla fine dello stato dell'arte, dopodichè tutti i gruppi si sono messi all'opera per trovare cose da fare per rendere più efficaci e numerose le nostre ascese in piazza. 
+
+Alle 12:30 io e Michele ci siamo messi a lavoro per sistemare la Dioscuri per ospitare la lezione di storia dell'arte contemporanea. 
