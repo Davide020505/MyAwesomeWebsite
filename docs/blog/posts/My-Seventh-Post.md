@@ -120,3 +120,12 @@ Verso la fine della conversazione, ho riproposto l'idea di portare il mondo in g
 Questa mattina tutto il laboratorio ha continuato la discussione avvenuta alla fine dello stato dell'arte, dopodichè tutti i gruppi si sono messi all'opera per trovare cose da fare per rendere più efficaci e numerose le nostre ascese in piazza. 
 
 Alle 12:30 io e Michele ci siamo messi a lavoro per sistemare la Dioscuri per ospitare la lezione di storia dell'arte contemporanea. 
+
+# Giornata normale
+*27/02/25*
+
+Questa mattina tutto il lab ha intrapreso una lunga conversazione durata fino alle 11:30 circa.
+
+Dopo la riunione io e i miei compagni abbiamo installato delle casse all'interno della Dioscuri per permettere alla prof. di storia dell'arte contemporanea di mostrarci un video che parlasse di Gustav Courbet.
+
+Durante il pomeriggio, noi del primo, abbiamo svolto regolarmente la nostra lezione di storia dell'arte moderna.
