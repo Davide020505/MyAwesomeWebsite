@@ -121,6 +121,7 @@ Questa mattina tutto il laboratorio ha continuato la discussione avvenuta alla f
 
 Alle 12:30 io e Michele ci siamo messi a lavoro per sistemare la Dioscuri per ospitare la lezione di storia dell'arte contemporanea. 
 
+
 # Giornata normale
 *27/02/25*
 
@@ -129,3 +130,19 @@ Questa mattina tutto il lab ha intrapreso una lunga conversazione durata fino al
 Dopo la riunione io e i miei compagni abbiamo installato delle casse all'interno della Dioscuri per permettere alla prof. di storia dell'arte contemporanea di mostrarci un video che parlasse di Gustav Courbet.
 
 Durante il pomeriggio, noi del primo, abbiamo svolto regolarmente la nostra lezione di storia dell'arte moderna.
+
+
+# La mia prima giornata in completa autonomia
+*28/02/25*
+
+Mattinata classica dove è avvenuta la solita riunione mattutina.
+
+Oggi tutti i membri del gruppo punti cospigui erano impegnati a lavorare ognuno a cose diverse all'interno del laboratorio e non avendo io altri lavori in sospeso da risolvere, ho sperimentato per la prima volta cosa significa decidere di proprio conto cosa fare.
+
+Ho iniziato girando in giro per tutto il laboratorio semplicemente osservando cosa stessero facendo gli altri, alla ricerca di qualcosa che mi stimolasse e a lavorarci sopra.
+
+Il primo gruppo che mi ha affascinato era quello che aveva il compito di andare a registrare dei suoni a garibaldi insieme ai maestri e a Fabrizio del conservatorio ma, per quanto mi sembrasse divertente come attività, ho deciso di non seguirli a Garibaldi e onestamente non so perchè io non lo abbia fatto.
+
+Il secondo gruppo che mi ha suscitato interesse era quello formato da Jordan, Bombos, Emy e Mirco, dove si discuteva sul come creare una sorta di cabina attaccata alla portineria che permettesse ad esempio di poterci caricare i telefoni e allo stesso tempo rimanere in un posto sicuro, il tutto cercado un modo alternativo per produrre l'energia elettrica che serviva a caricare una presunta batteria; in un secondo momento ho anche proposto 3 idee che potessero creare questa energia in modo alternativo come ad esempio con l'energia cinetica prodotta dai passi dei passanti, con la forza di un pugno tramite l'utilizzo di un sacco da box pubblico e infine tramite un sistema di preghiere e benedizione divina.
+
+Successivamente a jordan e Bombos è venuta un idea che consiste nell'utilizzo del mondo, del caso da astronauta di Paribello e del software di Fabrizio del conservatorio e quindi ci siamo prodigati a ragionare su come far funzionare questa idea per poi fare una sperimentazione all'interno della Dioscuri che consiste nel posizionare a terra una rete di acciaio di 1m² e azzeccarci sopra un piezoelettrico collegato ad un mixer, a sjua volta collegato a delle cuffie, in questo modo il rumore di tutte le cose che toccavano la rete si sarebbe sentino all'interno delle cuffie.
