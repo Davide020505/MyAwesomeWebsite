@@ -23,7 +23,7 @@ Infine ho rimesso apposto la Dioscuri e ho aiutato i memebri del mio gruppo ad o
 Ho avuto l'onore di essere incaricato di portare il mondo a casa mia per poi portarlo la mattina seguente a Garibaldi.
 
 
-# Finalmente con il mondo a Garibaldi
+# Un mondo a Garibaldi
 *06/03/25*
 
 Sta mattina sono partito da casa mia trasportando il mondo all'interno di una borsa di fortuna e una volta arrivato a Garibaldi ho atteso che arrivassero tutti i membri del mio gruppo.
