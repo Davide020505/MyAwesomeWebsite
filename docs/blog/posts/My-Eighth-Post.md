@@ -34,3 +34,11 @@ Abbiamo registrato varie "scenette" per varie clip e per il resto abbiamo cercat
 Come prima esperienza però ce la siamo cavata bene ed è stata un'esperienza fondamentale sia per capire come muovere i prossimi passi all'interno del territorio insieme al mondo e sia per iniziare a capire in che modo interagire con le persone coinvolgendole con la nostra arte.
 
 Il pomwriggio, noi del primo, abbiamo svolto la nostra normale lezione di storia dell'arte contemporanea.
+
+
+# Giornata normale
+*07/03/25*
+
+Riuonione mattutina lunga, in cui i gruppi che sono andati a Garibaldi hanno esposto i dati raccolti.
+
+Ho aiutato a portare giu le lettere giganti da sopra l'impalcatura e io insieme agl'altri abbiamo cercato di capire che tipo di parole potessimo creare attraverso le lettere in nostro possesso.
