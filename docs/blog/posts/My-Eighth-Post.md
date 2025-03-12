@@ -42,3 +42,30 @@ Il pomwriggio, noi del primo, abbiamo svolto la nostra normale lezione di storia
 Riuonione mattutina lunga, in cui i gruppi che sono andati a Garibaldi hanno esposto i dati raccolti.
 
 Ho aiutato a portare giu le lettere giganti da sopra l'impalcatura e io insieme agl'altri abbiamo cercato di capire che tipo di parole potessimo creare attraverso le lettere in nostro possesso.
+
+
+# Commemorazione delle donne
+*10/03/25*
+
+Durante la riunione mattutina, il gruppo manifesta ha voluto aprire una grande parentesi per parlare della giornata della commemorazione delle donne che ha successivamente ha scaturito un dibattito tra i membri del laboraotorio.
+
+Durante il pomeriggio io e il gruppo punti cospicui abbiamo ragionato sul come rendere le nostre prossime ascese a Garibaldi più mirate, e per fare cià abbiamo deciso di andare a fare alcune domande alla fondazione terzo luogo Obù.
+
+
+# Turbogiornata Reportage
+*11/03/25*
+
+Oggi si è svolta la turbo giornata per il gruppo reportanbge, nella quale abbiamo realizzato delle grafiche su un capitolo a nostra scelta all'interno del testo del reportage.
+Io ho realizzato una grafica rigurdante il capitolo che parlava delle origini di Mistake.
+
+
+# Evento Cuore di Napoli x Redbull
+*12/03/25*
+
+Dopo la riunione mattutina, siccome i membri del mio gruppo erano assenti, mi sono diretto a Piazza Garibaldi insieme al gruppo transcultura, ed insieme abbiamo fatto un censimento di tutti i negozzi, macellerie, barbieri, mercatini, ecc... stranieri.
+Finito il censimento abbiamo incontrato Carmen della portineria, la quale ci ha offerto il suo aiuto riguardo vari argomenti che potrebbero servirci in futuro.
+
+Durante il pomeriggio dopo una chiacchierata con Franz e Alfredo su quello che avevamo fatto quella mattina a Garibaldi, mi sono unito a un esperimento con touchdesign che stavano facendo Bombos, Giacomo e Michela, al quale poi si è aggiunto anche Alfredo.
+
+Finita la giornata, io e molti membri del lab, ci siamo diretti all'evento Redbull, all'interno della stazione di Montesanto, nel quale è stato presente anche Cuore di Napoli.
+A presentare cuori di Napoli sono stati Max e Maria che hanno parlato sul come è nato il progetto Cuore di Napoli, sul come si è mosso e sul come sta continuando a muoversi, e successivamente ha presentato anche Andrea che nello specifico ha parlato del progetto Mistake. 
