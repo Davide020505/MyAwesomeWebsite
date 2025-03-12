@@ -33,7 +33,7 @@ Una volta gonfiato il mondo, ed essere stati fermati dalla polizia, è iniziata 
 Abbiamo registrato varie "scenette" per varie clip e per il resto abbiamo cercato di far di interaggire le persone con noi ed il mondo, ma come ci aspettavamo, Garibaldi non è la Pignasecca, è stato molto più arduo cercare di interagire con i passati ed ancora più difficile convincerli a farsi una foto insieme al mondo.
 Come prima esperienza però ce la siamo cavata bene ed è stata un'esperienza fondamentale sia per capire come muovere i prossimi passi all'interno del territorio insieme al mondo e sia per iniziare a capire in che modo interagire con le persone coinvolgendole con la nostra arte.
 
-Il pomwriggio, noi del primo, abbiamo svolto la nostra normale lezione di storia dell'arte contemporanea.
+Il pomeriggio, noi del primo, abbiamo svolto la nostra normale lezione di storia dell'arte contemporanea.
 
 
 # Giornata normale
