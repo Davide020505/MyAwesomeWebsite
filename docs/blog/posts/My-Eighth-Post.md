@@ -69,3 +69,14 @@ Durante il pomeriggio dopo una chiacchierata con Franz e Alfredo su quello che a
 
 Finita la giornata, io e molti membri del lab, ci siamo diretti all'evento Redbull, all'interno della stazione di Montesanto, nel quale è stato presente anche Cuore di Napoli.
 A presentare cuori di Napoli sono stati Max e Maria che hanno parlato sul come è nato il progetto Cuore di Napoli, sul come si è mosso e sul come sta continuando a muoversi, e successivamente ha presentato anche Andrea che nello specifico ha parlato del progetto Mistake. 
+
+
+# Pittura, Stampini e Calzini Sporchi
+*14/03/25*
+
+Durante la mattina il gruppo reportage ha mostrato a tutto il lab i lavori che sono usciti fuori durante la turbogiornata e ai quali abbiamo anche reagito facendo varie considerazioni.
+
+Dopo la presentazione in tarda mattinata, ho osservato Bombos lavorare con touchdesign con il quale ha avuto difficoltà per via del fatto che stava utilizzando la versione gratuita del software, e quindi, mi sono allontanato per cercare di piratare il programma per conto mio ma ancora senza successo.
+
+Durante il pomeriggio, io e i miei compagni ci siamo adoperati per verniciare di rosso una delle lettere giganti, abbiamo posizionato un telo nelle zone intorno alla lettera sul quale camminavamo senza scarpe per non rischiare che si spezzasse, e tra le varie cose, c'era bisogno di un colino per filtrare la pittura e quindi io e Tulio siamo andati in missione a recuperarlo.
+Successivamente Franz ci ha detto che il lab doveva regalare gli stampini del cioccolato di Procida a un corso di un'altra università durante un evento in arrivo, e Jordan mi ha incaricato di trovare gli stampini, lavarli e darli a Franz; prima ho chiesto aiuto a Paribello per trovare gli stampini, poi li ho lavati all'interno del lavandino (tutti si sono chiesti perchè stessi lavando quegli stampini senza scarpe lol) e successivamente li ho asciugati e rimessi nella busta, successivamente li ho mostrati a Veronica, e infine li ho riposti nel cassetto in cima all'armadietto in auletta con un piccolo aiuto di Mario (tesista).
