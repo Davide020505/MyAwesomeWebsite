@@ -80,3 +80,13 @@ Dopo la presentazione in tarda mattinata, ho osservato Bombos lavorare con touch
 
 Durante il pomeriggio, io e i miei compagni ci siamo adoperati per verniciare di rosso una delle lettere giganti, abbiamo posizionato un telo nelle zone intorno alla lettera sul quale camminavamo senza scarpe per non rischiare che si spezzasse, e tra le varie cose, c'era bisogno di un colino per filtrare la pittura e quindi io e Tulio siamo andati in missione a recuperarlo.
 Successivamente Franz ci ha detto che il lab doveva regalare gli stampini del cioccolato di Procida a un corso di un'altra università durante un evento in arrivo, e Jordan mi ha incaricato di trovare gli stampini, lavarli e darli a Franz; prima ho chiesto aiuto a Paribello per trovare gli stampini, poi li ho lavati all'interno del lavandino (tutti si sono chiesti perchè stessi lavando quegli stampini senza scarpe lol) e successivamente li ho asciugati e rimessi nella busta, successivamente li ho mostrati a Veronica, e infine li ho riposti nel cassetto in cima all'armadietto in auletta con un piccolo aiuto di Mario (tesista).
+
+
+# Tesix 207 in arrivo
+*17/03/25*
+
+Dopo l'assemblea, parte del lab si è prodigato a sistemare il lab per le giornate del tesix; abbiamo iniziato spostando le sedie e i tavoli della stanza principale, abbiamo ripulito tutto il pavimento da polvere e scotch e abbiamo spostato le opere che si trovavano dietro la console; successivamente io e Gigi (secondo anno) abbiamo tolto la polvere dal telo del proiettore (sono salito per la prima volta sullo scaletto), e il resto della mattinata l'ho passata con Gigi (sesto anno) e Francesca (secondo anno) cercando di stabilizzare il mondo su di uno sgabello tramite del feltro per alcune presentazioni del tesix, dopo innumerevoli tentativi però abbiamo optato per rimuovere lo sgabello ed utilizzare al suo posto una pedana con sopra un cubo vuoto.
+
+Nel pomeriggio ci siamo divisi in gruppi per sistemare le altre stanze del lab ed io e alcuni miei co mpagni ci siamo occupati di sistemare la Dioscuri.
+
+Finito di sistemare tutto non resta che aspettare il domani.
