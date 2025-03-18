@@ -90,3 +90,11 @@ Dopo l'assemblea, parte del lab si è prodigato a sistemare il lab per le giorna
 Nel pomeriggio ci siamo divisi in gruppi per sistemare le altre stanze del lab ed io e alcuni miei co mpagni ci siamo occupati di sistemare la Dioscuri.
 
 Finito di sistemare tutto non resta che aspettare il domani.
+
+# Primo giorno di Tesix
+*18/03/25*
+
+Oggi c'è stato il primo giorno di Tesix, nel quale tutti i tesisti del triennio hanno presentato ed esposto tutte le loro tesi a tutti i membri del lab ed alcuni anche ai propri familiari.
+Le tesi chi più chi meno sono state interessanti.
+
+Durante il pomeriggio sono state annunciate le valutazioni finali degli studenti.
