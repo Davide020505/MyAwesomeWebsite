@@ -91,10 +91,26 @@ Nel pomeriggio ci siamo divisi in gruppi per sistemare le altre stanze del lab e
 
 Finito di sistemare tutto non resta che aspettare il domani.
 
+
 # Primo giorno di Tesix
 *18/03/25*
 
 Oggi c'è stato il primo giorno di Tesix, nel quale tutti i tesisti del triennio hanno presentato ed esposto tutte le loro tesi a tutti i membri del lab ed alcuni anche ai propri familiari.
-Le tesi chi più chi meno sono state interessanti.
+Le tesi chi più e chi meno sono state interessanti.
 
 Durante il pomeriggio sono state annunciate le valutazioni finali degli studenti.
+
+
+# Secondo giorno di Tesix
+*19/03/25*
+
+Oggi c'è stato il secondo giorno di tesix, nel quale tutti i tesisti hanno presentato ed esposto tutte le loro tesi a tutti i membri del lab.
+Le tesi sono state una più bella dell'altra.
+
+Durante il pomeriggio, noi del primo anno siamo stati chiamati a raggrupparci tutti affianco ai tesisti e simbolicamente ci hanno passato la candela dandoci l'onore di annunciare le loro valutazioni finali (io ho annunciato quella di Bombos).
+
+Dopo aver annunciato le valutazioni, sono seguiti vari momenti karaoke e a fine giornata, è stato anche celebrato il matrimonio tra Fabio e Martina (del primo anno).
+
+Infine, usciti dall'accademia, siamo andati tutti a festeggiare da Mosto.
+
+É stata una giornata incredibile ed indimenticale che rimarrà per sempre nel mio cuore e finche rimarrò ad N.T.A. farò l'impossibile per portare il laboratorio fin oltre il limite.
