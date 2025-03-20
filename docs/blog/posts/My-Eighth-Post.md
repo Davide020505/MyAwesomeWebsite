@@ -114,3 +114,12 @@ Dopo aver annunciato le valutazioni, sono seguiti vari momenti karaoke e a fine 
 Infine, usciti dall'accademia, siamo andati tutti a festeggiare da Mosto.
 
 É stata una giornata incredibile ed indimenticale che rimarrà per sempre nel mio cuore e finche rimarrò ad N.T.A. farò l'impossibile per portare il laboratorio fin oltre il limite.
+
+
+# Giornata normale 
+*20/03/25*
+
+Normale assemblea mattutina in cui abbiamo riflettuto sul come muovere i prossimi passi del lab.
+Il resto della mattinata l'ho passata insieme a una parte del gruppo punti cospicui, abbiamo riflettuto sui punti di interesse a nostra disposizione attualmente.
+
+Alle 13:00 è iniziata l'ora di storia dell'arte e una volta finita siamo rimasti in lab fino alle 17:30 ad ascoltare quelli di mediterranea.
