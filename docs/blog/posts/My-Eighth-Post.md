@@ -120,6 +120,6 @@ Infine, usciti dall'accademia, siamo andati tutti a festeggiare da Mosto.
 *20/03/25*
 
 Normale assemblea mattutina in cui abbiamo riflettuto sul come muovere i prossimi passi del lab.
-Il resto della mattinata l'ho passata insieme a una parte del gruppo punti cospicui, abbiamo riflettuto sui punti di interesse a nostra disposizione attualmente.
+Il resto della mattinata l'ho passata insieme a una parte del gruppo punti cospicui, abbiamo riflettuto sui punti di interesse a nostra disposizione attualmente per interagire con le persone a Piazza Garibaldi.
 
 Alle 13:00 è iniziata l'ora di storia dell'arte e una volta finita siamo rimasti in lab fino alle 17:30 ad ascoltare quelli di mediterranea.
