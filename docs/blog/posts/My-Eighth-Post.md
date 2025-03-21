@@ -123,3 +123,11 @@ Normale assemblea mattutina in cui abbiamo riflettuto sul come muovere i prossim
 Il resto della mattinata l'ho passata insieme a una parte del gruppo punti cospicui, abbiamo riflettuto sui punti di interesse a nostra disposizione attualmente per interagire con le persone a Piazza Garibaldi.
 
 Alle 13:00 è iniziata l'ora di storia dell'arte e una volta finita siamo rimasti in lab fino alle 17:30 ad ascoltare quelli di mediterranea.
+
+
+# Giornata normale
+*21/03/25*
+
+Dopo la riuonione mattutina, sono andato in dioscuri ad aggiustare il cuore di Napoli che sta appeso sulla gabbia di ferro con tutte quelle aste all'interno. Dopo averlo smontato, ho scoperto che semplicemente si era scollato lo scotch che manteneva i fili della corrente ed era finito sopra le strisce di led e quindi di conseguenza la luce veniva coperta. Una volta aver messo dei nuovi strati di scotch, il cuore era come nuovo e infine l'ho riappeso dove stava.
+
+Il resto della mattinata l'ho passato vicino ad Ivan e gl'altri a cercare di capire come fare la color correction del video dell'incontro con Mediterranea su DaVinci.
