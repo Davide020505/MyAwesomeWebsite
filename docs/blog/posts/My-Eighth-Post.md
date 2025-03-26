@@ -131,3 +131,51 @@ Alle 13:00 è iniziata l'ora di storia dell'arte e una volta finita siamo rimast
 Dopo la riuonione mattutina, sono andato in dioscuri ad aggiustare il cuore di Napoli che sta appeso sulla gabbia di ferro con tutte quelle aste all'interno. Dopo averlo smontato, ho scoperto che semplicemente si era scollato lo scotch che manteneva i fili della corrente ed era finito sopra le strisce di led e quindi di conseguenza la luce veniva coperta. Una volta aver messo dei nuovi strati di scotch, il cuore era come nuovo e infine l'ho riappeso dove stava.
 
 Il resto della mattinata l'ho passato vicino ad Ivan e gl'altri a cercare di capire come fare la color correction del video dell'incontro con Mediterranea su DaVinci.
+
+
+# Giornata di sperimentazione
+*24/03/25*
+
+Dopo l'assemblea, insieme a vari gruppi, abbiamo portato una mappa e le lettere per formare la scritta "CURA" a piazza garibaldi.
+La mappa l'abbiamo appesa su di una porta della portineria, trasformandola in una lavagna sulla quale tutti i passanti possono scrivere tutti i loro pensieri (anche se nessuno ci ha interagito fino ad adesso), mentre per le lettere, una volta posizione davanti ai tavolini della portineria, non siamo riusciti a capire come sfruttarle a dovere e quindi sono state abbastanza un flop.
+
+Durante il pomeriggio, volevo aiutare Emanuele con alcune grafiche, e mi sono ritrovato magicamente a far parte del gruppo comunicazione nato e battezzato di li a poco.
+Ci eravamo dati come orario di consegna circa le 16:15, ma io mi sono incaponito con una grafica perché volevo che venisse in un certo modo, questo mi ha fatto perdere molto tempo, e sono riuscito a finire il lavoro solo a giornata finita, e Claudia mi ha spiegato che non è sbagliato quello che ho fatto se ho il tempo per farlo e voglio imparare a fare una determinata cosa, ma quando abbiamo una data di consegna dovrei comcentrarmi sul realizzare più proposte possibili, in modo tale da avere sempre del lavoro pronto e nel caso migliorare l'idea che è piaciuta di più.
+
+
+# Essere indipendenti e responsabili
+*25/03/25*
+
+Franz la sera prima aveva mandato un messaggio su facebook dicendo di arrivare in lab massimo per le 9:15 perché aveva cose importanti da dire, ma una volta arrivati in lab si è rivelato tutto uno scherzo per vedere in quanti sarebbero venuti in orario motivati dalla paura.
+Successivamente durante l'assemblea Franz ci spiega che anche se non abbiamo una buona motivazione per scendere in piazza i nostri mezzi di interazione sociale, dobbiamo comunque andare sul territorio e provare a sfruttarli in qualsiasi modo così da poter quanto minimo far percepire la nostra presenza nel territorio.
+
+Dopo l'assemblea, sono sceso da Somma, insieme a Michele e Emanuele, per stampare i 2 articoli che avrei dovuto finire il giorno prima per il gruppo comunicazione, una volta tornati in lab, Claudia e Veronica sono rimaste molto contente.
+Poco dopo siamo scesi in piazza con l'intenzione di far conoscenza dei vari bar, negozzi, ecc... che si affacciano sulla piazza, ma una volta arrivati all'arena e aver incontrato i nostri compagni, ci siamo tutti messi in gruppi diversi per compensare le mancanse di tutti, e io sono andato con il gruppo che si occupava di trasportare il mondo.
+Personalmente l'esperienza personalmenre è stata un 50 e 50, perché da un lato ho conosciuto persone molto più simpatiche della scorsa volta come ad esempio Susan, un attrice statunitense che viaggia per il mondo, ed ho appreso ancora più conoscenze sul come interagire con le persone.
+Ma abbiamo comunque interagito con poche persone e molti miei compagni di lavoro non prendevano la cosa seriamente, quindi in sostanza non è stata una situazione molto diversa dalla prima volta che scendemmo il mondo.
+
+Durante il pomeriggio in lab noi del gruppo comunicazione abbiamo ragionato sui nostri prossimi passi e ci siamo divisi in mini gruppetti per completare tutti gli obiettivi che ci siamo prefissati, io ho iniziato a lavorare per la realizzazione di un flyer da distribuire successivamente ai passanti da usare come scusa per interagire con loro.
+
+
+# Oggi è successo di tutto
+*26/03/25*
+
+Sta mattina mi sono dimenticato che dovevo incontrarmi con il mio gruppo alle 9:30 e quindi ho preso il treno che da pietrarsa arrivava a garibaldi alle 8:30, ma durante il tragitto mi sono distratto e non sono sceso a Garibaldi e me ne sono reso conto solo dopo essere arrivato a Cavour, quindi ho preso il treno alla linea 1 di Cavour e sono tornato indietro per arrivare a Garibaldi.
+
+Arrivato a Garibaldi incontro Federica ed Emanuele e successivamente arrivano anche Valentina e Tullio; mentre stavamo per i fatti nostri si avvicina un uomo trasandato e con movenze spastiche che ci chiede se potessimo dargli 1€ per la droga, Emanuele gli risponde dicendogli di non avere spicci con se e quindi il signore gli chiede se almeno potesse dargli una sigaretta e cosi Emanuele glie ne da una, il signore rimane per un pò cercando di avere una conversazione con noi, principalmente chiedendoci di fare una performance dopo avergli detto che siamo artisti, e alla fine se ne va consigliandoci di non iniziare mai a drogarci.
+
+Arrivati tutti i membri del gruppo comunicazione, andiamo a fare colazione al solito bar (lo stesso che ci fece gonfiare il mondo la prima volta) e iniziamo a socializzare parecchio con tutto lo staff.
+
+Dopo la colazione, io, Michela e Christiana, siamo andati a offrire dei caffè ad un hotel che si affaccia sulla piazza, poichè il giorno prima avevamo avuto interazioni con il proprietario di suddetto hotel e speravamo che offrendogli il caffè il nostro rapporto sarebbe migliorato e che ci avrebbe lasciato utilizzare l'hotel come base operativa per poggiarci con in PC, ma al nostro arrivo incontriamo solo 2 impiegati con i quali iniziamo una conversazione ma dalla quale non siamo riusciti a raggiungere il nostro obiettivo.
+
+Successivamente il gruppo si divide in tanti sotto gruppi per lavorare a diversi topic, metà di noi sono andati ad usare il MC come base operativa, il quale ci ha accolto a braccia aperte.
+Principalmente io e Giacomo ci siamo occupati di ideare nuovi possibili format per pubbliciazzare il più possibile tutto quello che avviene durante il progetto Garibaldi in collaborazione con Mistake.
+Purtroppo siamo dovuti scappare prematuramente dal MC poichè è arrivata un'intera scolaresca a mangiare di conseguenza abbiamo lasciato i tavoli alla clientela.
+
+Una volta usciti dal MC, abbiamo incontrato gli altri gruppi e c'erano: un gruppo che ha attaccato bottone con una signora che stava facendo i capelli ad una testa di un manichino sopra un tavolino della portineria; un gruppo che ha portato il mondo riuscendo a gonfiarlo in un negozio in cui vendono dischi, per poi portarlo vicino alla portineria per cercare di appenderlo sopra un lampione affianco alla giostra, sulla quale c'era un gruppo di ragazzi che si è interessato alla questione dandoci una mano, dopo non essere riusciti ad appenderlo sul lampione abbiamo deciso di appenderlo all'interno della cornice che si trova all'arena, poi abbiano portato la scritta CURA sopra le reti della giostra sulla quale noi insieme al gruppo di ragazzi ci siamo scattati varie foto; infine Tullio, Raffaele, Emanuele, Michele e Giacomo hanno giocato a palla canestro con 2 ragazzi della zona.
+
+A fine mattinata il gruppo comunicazione si è riunito sulle scale dell'arena insieme a qualche altro nostro compagno per fare un recap della giornata, e ad un certo punto ci si avvicina un'anziano mezzo fuori di testa che inizia a farci tantissime domande e mandando a fanculo Gigi D'Alessio.
+
+Durante il pomeriggio, noi del primo anno, abbiamo svolto la nostra classica lezione di storia dell'arte.
+
+E infine mi sono messo ad assistere all'incontro che si stava tenendo in lab iniziato durante la lezione di storia dell'arte.
