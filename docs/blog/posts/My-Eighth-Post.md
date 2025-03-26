@@ -174,7 +174,7 @@ Purtroppo siamo dovuti scappare prematuramente dal MC poichè è arrivata un'int
 
 Una volta usciti dal MC, abbiamo incontrato gli altri gruppi e c'erano: un gruppo che ha attaccato bottone con una signora che stava facendo i capelli ad una testa di un manichino sopra un tavolino della portineria; un gruppo che ha portato il mondo riuscendo a gonfiarlo in un negozio in cui vendono dischi, per poi portarlo vicino alla portineria per cercare di appenderlo sopra un lampione affianco alla giostra, sulla quale c'era un gruppo di ragazzi che si è interessato alla questione dandoci una mano, dopo non essere riusciti ad appenderlo sul lampione abbiamo deciso di appenderlo all'interno della cornice che si trova all'arena, poi abbiano portato la scritta CURA sopra le reti della giostra sulla quale noi insieme al gruppo di ragazzi ci siamo scattati varie foto; infine Tullio, Raffaele, Emanuele, Michele e Giacomo hanno giocato a palla canestro con 2 ragazzi della zona.
 
-A fine mattinata il gruppo comunicazione si è riunito sulle scale dell'arena insieme a qualche altro nostro compagno per fare un recap della giornata, e ad un certo punto ci si avvicina un'anziano mezzo fuori di testa che inizia a farci tantissime domande e mandando a fanculo Gigi D'Alessio.
+A fine mattinata il gruppo comunicazione si è riunito sulle scale dell'arena insieme a qualche altro nostro compagno per fare un recap della giornata, e ad un certo punto ci si avvicina un'anziano mezzo fuori di testa che inizia a farci tantissime domande e mandando a fanculo Pino Daniele.
 
 Durante il pomeriggio, noi del primo anno, abbiamo svolto la nostra classica lezione di storia dell'arte.
 
