@@ -179,3 +179,20 @@ A fine mattinata il gruppo comunicazione si è riunito sulle scale dell'arena in
 Durante il pomeriggio, noi del primo anno, abbiamo svolto la nostra classica lezione di storia dell'arte.
 
 E infine mi sono messo ad assistere all'incontro che si stava tenendo in lab iniziato durante la lezione di storia dell'arte.
+
+
+# Primo giorno in studio
+*29/03/25*
+
+Oggi io e Emanuele siamo andati nello studio a casalnuovo di Jordan, Gigi e Paribello.
+Una volta arrivati davanti allo studio, telefono Jordan che arriva poco dopo e insieme a lui apriamo lo studio e andiamo a fare colazione al bar.
+
+Successivamente passiamo il resto della mattinata a conversare fino all'arrivo di Paribello, dopodiché io, Manu e Jordan andiamo a fare diverse commissioni per lo studio.
+
+Mentre pranziamo arriva anche Gigi, ed iniziamo a fare i lavori per ristrutturare il bagno dello studio.
+
+Mentre lavoravamo arrivano anche Franci e Patty; a un certo punto ci è toccatto smontare il lavandino dal muro per pitturare meglio i muri e io e Gigi ne abbiamo approfittato per andare a comprare dei pezzi nuovi per il lavandino.
+
+Purtroppo arrivare le 17, io e Manu siamo dovuti andare via e quindi abbiamo salutato tutti.
+
+È stata una giornata fantastica e spero di averne ancora tante così in futuro.
