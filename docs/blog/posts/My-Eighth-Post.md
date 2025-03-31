@@ -181,6 +181,30 @@ Durante il pomeriggio, noi del primo anno, abbiamo svolto la nostra classica lez
 E infine mi sono messo ad assistere all'incontro che si stava tenendo in lab iniziato durante la lezione di storia dell'arte.
 
 
+# Giornata normale
+*27/03/25*
+
+Dopo la riuonione vado a lavorare con il gruppo comunicazione continuando a sviluppare i vari format che dobbiamo creare con il successivo aiuto anche di Tullio.
+
+Durante una pausa entro in contatto con un altro gruppo nel quale vi sono Gigi, Nic e Gaia.
+Inizialmente Gigi e Nic, vedendo il video del recap che avevo fatto per la prima volta che portammo il mondo a Garibaldi, mi spiegano come creare jn video più bello e funzionale, e dopo aiuto Gaia a recupare alcune immagini del mondo a Garibaldi.
+
+Dopo la pausa pranzo vado a svolgere la solita lezione di storia dell'arte moderna, e una volta conclusa ritorno dal più gruppo con il quale faccio un recap della giornata.
+
+
+# Erbacce e dintorni
+*28/03/25*
+
+Sta mattina il gruppo comunicazione si è riunito direttamente a Piazza Garibaldi
+Dopo aver fatto colazione, ci dividiamo in ulteriori sotto gruppi per svolgere più compiti contemporaneamente.
+
+Io, Giorgio, Valentina, Michela, Francesca e Tuccia, abbiamo partecipato al workshop di erbacce, ed io, Giorgio e Valentina avevamo il compito di fare alcune riprese sia al workshop che a tutto quello che poteva capitare a torno e io in particolare avevo il compito di fare delle risprese con l'osmo.
+All'interno del workshop abbiamo svolto varie attività come guardare delle immagini e dire cosa ci ricordavano oppure guardare come in alcune parti del mondo con dei semplici tocchi di pittura colorata, i luoghi e le strade cambiano totalmente aspetto.
+Mentre svolgevamo il workshop, un gruppo di senegalesi iniziano a litigare perché uno di loro aveva tentato di rubare il telefono a uno di loro, il litigio è andato avanti a lungo e anche alcuni partecipanti del workshop si sono intromessi nella diatriba per far terminare il litigio, fortunatamente nessuno si è fatto male ma l'atmosfera ormai era rovinata.
+Come ultima attività, abbiamo svolto degl' esercizzi fisici sia individuali che di gruppo per tranquillizzare la mente e il corpo.
+È stata una giornata particolare.
+
+
 # Primo giorno in studio
 *29/03/25*
 
@@ -196,3 +220,14 @@ Mentre lavoravamo arrivano anche Franci e Patty; a un certo punto ci è toccatto
 Purtroppo arrivare le 17, io e Manu siamo dovuti andare via e quindi abbiamo salutato tutti.
 
 È stata una giornata fantastica e spero di averne ancora tante così in futuro.
+
+
+# Trova la X
+*31/03/25*
+
+Dopo l'assemblea, mi metto subito a lavorare con il gruppo comunicazione, e inizio a creare dei nuovi post per gli articoli della transidisciplinarietà che successivamente dovranno essere pubblicati.
+
+Dopo la pausa pranzo, parto in spedizione insieme a Jordan e Vins per andare a far stampare una nuova X di spugna per costruire la scritta "Tedex" per un evento che avverrà.
+Ma una volta arrivati sul luogo, la persona che si occupa di creare le forme era assente oggi e quindi siamo costretti a ripassare domani.
+
+Una volta tornati in lab, ho finito il lavoro lasciato in sospeso e sono andato da Somma insieme a Emanuele per andare a stampare la sagoma della X su di un foglio A1.
