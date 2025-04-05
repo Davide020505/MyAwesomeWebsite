@@ -19,7 +19,7 @@ Nel pomeriggio, io, Jordan, Claudia, Federica e Emanuele, ci siamo messi a pittu
 # Giornata Bo
 *02/04/25*
 
-sta mattina il gruppo comunicazione si e diviso tra i vari gruppi scesi a Garibaldi per registrare le loro attività.
+Sta mattina il gruppo comunicazione si e diviso tra i vari gruppi scesi a Garibaldi per registrare le loro attività.
 Io sono andato con un sotto gruppo del gruppo biodiversità, che oggi si è occupato di socializzare con i negozzi della zona Vasto.
 Purtroppo non sono riuscito a svolgere bene il mio compito visto che per strada non è successo nulla e non potevo registrare a caso dentro i negozzi; l'unica cosa che ho guadagnato da quest'esperienza è stato il fatto di parlare per la prima volta con dei commercianti per iniziare a socializzare.
 
@@ -28,3 +28,13 @@ In tarda mattinata ho registrato il backstage di una parte del video che deoveva
 Nel pomeriggio abbiamo svolto la nostra classica lezione di storia dell'arte.
 
 Finita la lezione, ho collaborato a creare un remix di una canzone sulla ciola insieme a Emanuele, Mimmo e Giacomo.
+
+
+# Giornata normale
+*03/04/25*
+
+Sta mattina, dopo l'assemblea, il gruppo comunicazione, documentario e social, si sono riuniti in auletta per organizzare la spedizione presso officina Keller.
+
+Successivamente noi del gruppo comunicazione ci dirigiamo a Piazza Garibaldi dove continuiamo a organizzarci per officina Keller e le giornate successive.
+
+Nel pomeriggio, dopo aver assistito ad un Jordan paraplegico, noi del primo abbiamo svolto la nostra classica lezione di storia dell'arte.
