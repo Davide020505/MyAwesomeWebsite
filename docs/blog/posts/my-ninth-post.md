@@ -38,3 +38,12 @@ Sta mattina, dopo l'assemblea, il gruppo comunicazione, documentario e social, s
 Successivamente noi del gruppo comunicazione ci dirigiamo a Piazza Garibaldi dove continuiamo a organizzarci per officina Keller e le giornate successive.
 
 Nel pomeriggio, dopo aver assistito ad un Jordan paraplegico, noi del primo abbiamo svolto la nostra classica lezione di storia dell'arte.
+
+
+# Giornata normale
+*10/04/25*
+
+Sta mattinba sono andato direttamente in piazza come membro del gruppo comunicazione, e oggi il mio compito era seguire il gruppo transcultura per documentare quello che facevano.
+
+Purtroppo però verso le 11 e mezza noi del primo anno, siamo dovuti tornare il lal per seguire la lezione di storia dell'arte che iniziava alle 12.
+
