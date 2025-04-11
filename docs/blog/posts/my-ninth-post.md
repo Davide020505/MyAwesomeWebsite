@@ -47,3 +47,12 @@ Sta mattinba sono andato direttamente in piazza come membro del gruppo comunicaz
 
 Purtroppo però verso le 11 e mezza noi del primo anno, siamo dovuti tornare il lal per seguire la lezione di storia dell'arte che iniziava alle 12.
 
+
+# Giornata di riunioni
+*11/04/25*
+
+Sta mattina riunione lunghetta in attesa dell'inizio del Workshop con Raffaella Garritano (lellaprofile).
+
+Svolgimento del Workshop con Raffaella Garritano
+
+Durante il pomeriggio abbiamo svolto una sorta di stato dell'arte per aggiornare tutto il lab sul lavoro di tutti i gruppi.
