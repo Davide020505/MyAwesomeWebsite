@@ -58,3 +58,11 @@ Sta mattina riunione lunghetta in attesa dell'inizio del Workshop con Raffaella 
 Svolgimento del Workshop con Raffaella Garritano
 
 Durante il pomeriggio abbiamo svolto una sorta di stato dell'arte per aggiornare tutto il lab sul lavoro di tutti i gruppi.
+
+
+# Primo giorno del Workshop con Tony Pezzella
+*14/04/25*
+
+Dopo la classica riunione di sta mattina, si è tenuto il primo incontro per il workshop con Tony Pezzella che ci ha spiegato un pò quello che fa, come funziona il mondo del lavoro una volta usciti dal corso e in che modo utilizzare le esperienze apprese in questo corso.
+
+Durante il pomeriggio ci dividiamo nei soliti gruppi e iniziamo a pensare a un ipotetica installazione digitale che potrebbe essere applicata a Garibaldi e cercare di realizzarla tramite I.A. durante gli i prossimi incontri.
