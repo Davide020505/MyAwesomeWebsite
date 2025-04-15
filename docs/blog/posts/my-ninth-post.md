@@ -66,3 +66,11 @@ Durante il pomeriggio abbiamo svolto una sorta di stato dell'arte per aggiornare
 Dopo la classica riunione di sta mattina, si è tenuto il primo incontro per il workshop con Tony Pezzella che ci ha spiegato un pò quello che fa, come funziona il mondo del lavoro una volta usciti dal corso e in che modo utilizzare le esperienze apprese in questo corso.
 
 Durante il pomeriggio ci dividiamo nei soliti gruppi e iniziamo a pensare a un ipotetica installazione digitale che potrebbe essere applicata a Garibaldi e cercare di realizzarla tramite I.A. durante gli i prossimi incontri.
+
+
+# Secondo giorno del Workshop con Tony Pezzella
+*15/04/25*
+
+Dopo la riuonione, è iniziato il secondo incontro per il workshop con Tony pezzella, il quale ci ha illustrato il funzionamento di tante I.A. diverse.
+
+Durante il pomeriggio invece, si è tenuta una riunione Mistake con Marco Salvemini che ci ha illustrato delle ricerche che ha fatto e grazie alle quali è arrivato a concepire l'idea che ci ha presentato.
