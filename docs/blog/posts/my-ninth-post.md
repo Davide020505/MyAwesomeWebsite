@@ -74,3 +74,20 @@ Durante il pomeriggio ci dividiamo nei soliti gruppi e iniziamo a pensare a un i
 Dopo la riuonione, è iniziato il secondo incontro per il workshop con Tony pezzella, il quale ci ha illustrato il funzionamento di tante I.A. diverse.
 
 Durante il pomeriggio invece, si è tenuta una riunione Mistake con Marco Salvemini che ci ha illustrato delle ricerche che ha fatto e grazie alle quali è arrivato a concepire l'idea che ci ha presentato.
+
+
+# Terzo giorno del Workshop con Tony Pezzella
+*16/04/25*
+
+Dopo la riunione, ci siamo divisi nei soliti gruppi e abbiamo lavorato nella pratica a cercare di realizzare le idee che ci sono venute durante il primo giorno del workshop.
+Io, Mimmo e Christiana abbiamo principalmente lavorato a creare dei modelli 3D sul programma Magicavoxel.
+
+Nel pomeriggio noi del primo abbiamo svolto la nostra classica lezione di storia dell'arte.
+
+
+# Giornata normale
+*17/04/25*
+
+Sta mattina, come membro del gruppo comunicazione, mi sono intrufolato nel gruppo frottage e ho registrato tutto quello che hanno fatto.
+
+Nel pomeriggio noi del primo abbiamo svolto la nostra classica lezione di storia dell'arte.
