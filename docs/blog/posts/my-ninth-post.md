@@ -91,3 +91,14 @@ Nel pomeriggio noi del primo abbiamo svolto la nostra classica lezione di storia
 Sta mattina, come membro del gruppo comunicazione, mi sono intrufolato nel gruppo frottage e ho registrato tutto quello che hanno fatto.
 
 Nel pomeriggio noi del primo abbiamo svolto la nostra classica lezione di storia dell'arte.
+
+
+# Post Pasqua
+*23/04/25*
+
+Oggi ci siamo riuniti tutti a Piazza Garibaldi, ma siccome eravamo in pochi, invece di lavorare con i soliti gruppi, ci siamo divisi in vari gruppetti sul momento cercando di fare le migliori sperimentazioni che ci venivano in mente.
+
+Io sono andato con il gruppo che si è occupato di fare itineraggio con la Terra, cercando di relazionarci con più persone possibili e di distribuire tutti i flyer a nostra disposizione.
+Oggi a mio parere è stato uno dei migliori itineraggi che abbiamo fatto con il mondo, siamo riusciti a interagire con tante persone, a spiegargli chi eravamo e cosa stavamo facendo, e siamo riusciti a distribuire tutti i flyer a nostra disposizione.
+
+Durante il pomeriggio ci siamo riuniti tutti da keller e abbiamo fatto riunione.
