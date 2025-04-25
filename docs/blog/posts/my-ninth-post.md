@@ -102,3 +102,13 @@ Io sono andato con il gruppo che si è occupato di fare itineraggio con la Terra
 Oggi a mio parere è stato uno dei migliori itineraggi che abbiamo fatto con il mondo, siamo riusciti a interagire con tante persone, a spiegargli chi eravamo e cosa stavamo facendo, e siamo riusciti a distribuire tutti i flyer a nostra disposizione.
 
 Durante il pomeriggio ci siamo riuniti tutti da keller e abbiamo fatto riunione.
+
+
+# Un piccolo mistake da cui imparare
+*24/04/25*
+
+Oggi ci siamo riuniti tutti a Piazza Garibaldi ed io con il gruppo sociale, composto da me, Federica, Emanuele e Michela, siamo andati ad officina keller con l'obiettivo di iniziare e finire un video di presentazione per tutti i loghi di tutte lo società coinvolte nel nostro progetto, e che soprattutto fosse diverso dal video che era stato fanno l'anno prima poichè non piaceva.
+
+Io, Fede e Manu abbiamo passato tutta la mattinata cercando di realizzare tutte le clip di cui avevamo bisogno nel modo più creativo possibile, ma poi durante la fase di monmtaggio ci siamo resi conto che avevamo creato delle clip con delle idee si migliori rispetto al vecchio video ma che non andavano poi tanto lontano dal quel concept tranne che per alcune clip, quindi abbiamo deciso di ricominciare da capo e la prossima volta di agire in maniera più consapevole, riflettendo sul dove abbiamo sbagliato e muoverci di conseguenza.
+
+Durante il pomeriggio abbiamo tenuto una riunione.
