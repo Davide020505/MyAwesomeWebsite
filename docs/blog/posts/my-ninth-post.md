@@ -112,3 +112,25 @@ Oggi ci siamo riuniti tutti a Piazza Garibaldi ed io con il gruppo sociale, comp
 Io, Fede e Manu abbiamo passato tutta la mattinata cercando di realizzare tutte le clip di cui avevamo bisogno nel modo più creativo possibile, ma poi durante la fase di monmtaggio ci siamo resi conto che avevamo creato delle clip con delle idee si migliori rispetto al vecchio video ma che non andavano poi tanto lontano dal quel concept tranne che per alcune clip, quindi abbiamo deciso di ricominciare da capo e la prossima volta di agire in maniera più consapevole, riflettendo sul dove abbiamo sbagliato e muoverci di conseguenza.
 
 Durante il pomeriggio abbiamo tenuto una riunione.
+
+
+# Workshop con Marco Armiero
+*28/04/25*
+
+Oggi durante tutta la mattinata abbiamo organizzato e svolto il workshop con Marco Armiero.
+
+Durante il pomeriggio, insieme a Emanuele e Federica ho discusso di un pò di punti sui quali riflettere per andare avanti con il gruppo social.
+
+Infine ho assistito un pò alla riunione dei tesisti.
+
+
+# Complexus
+*30/04/25*
+
+Durante la mattinata, Jordan e Bombos ci hanno insegnato ad utilizzare complexus.
+
+Dopo la riunione, mi sono messo a lavorare un pò per il gruppo social, dopodichè mi sono messo ad esportare in file .jpeg tutte i nuovi layer aggiornati per metterli su complexus.
+
+Durante il pomeriggio, io e Luca abbiamo messo in ogni chiavetta di complexus un nuovo layer aggiornato, poi siamo andati alla ricerca di 2 chiavette scomparse e infine abbiamo aggiustato tutti i televisori di complexus per far in modo che non si spegnessero più da soli.
+
+Negl'ultimi momenti della giornata mi sono messo, insieme a Michele, a cercare delle nuove transizioni per premiere per il nuovo video dei loghi che stiamo creando.
