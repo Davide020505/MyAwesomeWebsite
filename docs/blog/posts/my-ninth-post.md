@@ -134,3 +134,15 @@ Dopo la riunione, mi sono messo a lavorare un pò per il gruppo social, dopodich
 Durante il pomeriggio, io e Luca abbiamo messo in ogni chiavetta di complexus un nuovo layer aggiornato, poi siamo andati alla ricerca di 2 chiavette scomparse e infine abbiamo aggiustato tutti i televisori di complexus per far in modo che non si spegnessero più da soli.
 
 Negl'ultimi momenti della giornata mi sono messo, insieme a Michele, a cercare delle nuove transizioni per premiere per il nuovo video dei loghi che stiamo creando.
+
+
+# Primo giorno di Workshop con Fondazione Brodolini
+*05/05/25*
+
+Oggi abbiamo passato tutta la giornata con 2 membri della Fondazione Brodolini che ci hanno illustrato tutto il loro modo di vedere e di fare durante lo svolgimento del loro lavoro.
+
+Personalmente penso che usino quasi le nostre stesse modalità ma semplicemente trattate come se fossero solo un lavoro e non come una passione o un modo di essere, basano tutto in schemi pieni di regole bianco su nero il che a mio parere fa perdere tutta la magia.
+
+
+# Secondo giorno di Workshop con Fondazione Brodolini
+*06/05/25
