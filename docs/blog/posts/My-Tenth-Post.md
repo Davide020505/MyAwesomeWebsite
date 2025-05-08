@@ -24,3 +24,16 @@ In quel passaggio, secondo me, si perde tutta la magia.
 Oggi trenta di noi sono stati scelti per continuare a seguire il workshop, mentre il resto del lab si è prodigato a fare altre attività.
 
 Dopo una spiegazione introduttiva, ci siamo divisi in 5 gruppi per lavorare ognuno ad un tema diverso che riguardasse Piazza Garibaldi e il nostro obiettivo è stato quello di partorire tantissime idee per poi illustrarle agl'altri.
+
+# Terzo giorno di Workshop con Fondazione Brodolini
+*07/05/25*
+
+Oggi durante il workshop, dopo la lezione di teoria, ci siamo messi a identificare all'interno di 2 mappe ogni tipo di individuo, associazione, società, ecc..., che collabora con noi e che livello di importanza hanno nel progetto del chiosco che abbiamo ideato per Piazza Garibaldi.
+
+Verso la fine della giornata ci siamo messi a creare una presentazione da far vedere domani agli'altri gruppi.
+
+
+# Quarto giorno di Workshop con Fondazione Brodolini
+*08/05/25*
+
+Questa mattina durante il workshop tutti i gruppi hanno presentato il loro progetto e dopo ci siamo diretti a Piazza Garibaldi per concludere l'ultima giornata di workshop con le attività finali.
