@@ -37,3 +37,9 @@ Verso la fine della giornata ci siamo messi a creare una presentazione da far ve
 *08/05/25*
 
 Questa mattina durante il workshop tutti i gruppi hanno presentato il loro progetto e dopo ci siamo diretti a Piazza Garibaldi per concludere l'ultima giornata di workshop con le attività finali.
+
+
+# Giornata normale
+*09/05/25*
+
+Oggi durante tutta la mattinata, io, Manu e Fede, abbiamo continuato al lavorare sul video dove compariranno tutti i loghi di tutte le associazioini coinvolte nel progetto di Piazza Garibaldi.
