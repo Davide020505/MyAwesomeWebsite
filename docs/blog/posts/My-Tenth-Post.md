@@ -43,3 +43,14 @@ Questa mattina durante il workshop tutti i gruppi hanno presentato il loro proge
 *09/05/25*
 
 Oggi durante tutta la mattinata, io, Manu e Fede, abbiamo continuato al lavorare sul video dove compariranno tutti i loghi di tutte le associazioini coinvolte nel progetto di Piazza Garibaldi.
+
+
+# Come non tagliare dei tessuti
+*10/05/25*
+
+Oggi abbiamo svolto una turbogiornata per ritagliare tutti i pezzi di stoffa che poi dovranno essere cuciti insieme per creare una tovaglia lunga 45 metri per la tavolata che organizzeremo a Pollica.
+
+Ognuno di noi aveva delle forbici, dello scotch, un sample di carta quadrato per tagliare in maniera corretta il tessuto e delle stoffe.
+Durante questa giornata ho scoperto quanto io sia totalmente incapace di tagliare dei tessuti e nonostante il supporto dei miei compagni e gli innumerevoli tentativi che ho fatto, alla fine non sono riuscito a creare delle stoffe adatte allo scopo, e quindi mi sono limitato a fornire supporto agl'altri ritagliando delle forme più grandi di quanto richieste, in modo tale che loro dovessero solo rifinirle, oppure posando le stoffe complete e buttando gli scarti sui tavoli.
+
+Fun Fact: Durante la pausa pranzo mi sono appisolato sui divani, e quindi Franz e Maria (sesto) hanno pensato bene di registrare un video dove mi buttavano l'acqua di una bottiglia addosso mentre dormivo, ma in compenso ho ricevuto una nuova maglietta con il logo "Noi Umani".
