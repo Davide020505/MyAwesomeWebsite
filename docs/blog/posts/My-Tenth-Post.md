@@ -46,7 +46,7 @@ Oggi durante tutta la mattinata, io, Manu e Fede, abbiamo continuato al lavorare
 
 
 # Come non tagliare dei tessuti
-*10/05/25*
+*12/05/25*
 
 Oggi abbiamo svolto una turbogiornata per ritagliare tutti i pezzi di stoffa che poi dovranno essere cuciti insieme per creare una tovaglia lunga 45 metri per la tavolata che organizzeremo a Pollica.
 
@@ -54,3 +54,13 @@ Ognuno di noi aveva delle forbici, dello scotch, un sample di carta quadrato per
 Durante questa giornata ho scoperto quanto io sia totalmente incapace di tagliare dei tessuti e nonostante il supporto dei miei compagni e gli innumerevoli tentativi che ho fatto, alla fine non sono riuscito a creare delle stoffe adatte allo scopo, e quindi mi sono limitato a fornire supporto agl'altri ritagliando delle forme più grandi di quanto richieste, in modo tale che loro dovessero solo rifinirle, oppure posando le stoffe complete e buttando gli scarti sui tavoli.
 
 Fun Fact: Durante la pausa pranzo mi sono appisolato sui divani, e quindi Franz e Maria (sesto) hanno pensato bene di registrare un video dove mi buttavano l'acqua di una bottiglia addosso mentre dormivo, ma in compenso ho ricevuto una nuova maglietta con il logo "Noi Umani".
+
+
+# HO PRESO FUOCO!
+*13/05/25*
+
+Sta mattina ho continuato a lavorare al video dei loghi insieme a Federica e Emanuele.
+
+In tarda mattinata ho aiutato, insieme agl'altri, Paribello e Mario a creare le lampade Cuore di Napoli e durante il mio primo tentativo nel provare a utilizzare un saldatore, ho toccato per sbgalio la base di ferro bollente e mi sono bruciato, per il resto mi sono divertito un casino.
+
+Durante il pomeriggio abbiamo fatto la nostra normale lezione di storia dell'arte.
