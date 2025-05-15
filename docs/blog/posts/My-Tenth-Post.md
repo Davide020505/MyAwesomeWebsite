@@ -64,3 +64,11 @@ Sta mattina ho continuato a lavorare al video dei loghi insieme a Federica e Ema
 In tarda mattinata ho aiutato, insieme agl'altri, Paribello e Mario a creare le lampade Cuore di Napoli e durante il mio primo tentativo nel provare a utilizzare un saldatore, ho toccato per sbgalio la base di ferro bollente e mi sono bruciato, per il resto mi sono divertito un casino.
 
 Durante il pomeriggio abbiamo fatto la nostra normale lezione di storia dell'arte.
+
+
+# Giornata normale
+*14/05/25*
+
+Oggi dopo l'assemblea mattutina, si è svolto un incontro con Carmen Vicinanza e la sua maestra.
+
+Durante il pomeriggio noi del primo abbiamo svolto la nostra solita lezione di storia dell'arte.
