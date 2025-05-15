@@ -71,4 +71,4 @@ Durante il pomeriggio abbiamo fatto la nostra normale lezione di storia dell'art
 
 Oggi dopo l'assemblea mattutina, si è svolto un incontro con Carmen Vicinanza e la sua maestra.
 
-Durante il pomeriggio noi del primo abbiamo svolto la nostra solita lezione di storia dell'arte.
+Durante il pomeriggio noi del primo abbiamo svolto la nostra lezione di storia dell'arte.
