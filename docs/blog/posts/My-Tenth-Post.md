@@ -72,3 +72,16 @@ Durante il pomeriggio abbiamo fatto la nostra normale lezione di storia dell'art
 Oggi dopo l'assemblea mattutina, si è svolto un incontro con Carmen Vicinanza e la sua maestra.
 
 Durante il pomeriggio noi del primo abbiamo svolto la nostra lezione di storia dell'arte.
+
+
+# Evento Torneo di Basket
+*16/05/25*
+
+Oggi è stato il gran giorno dell'evento di basket tenutosi a Piazza Garibaldi, nel quale abbiamo collaborato anche noi insieme alla portineria.
+
+Durante la mattina, come membro del gruppo social, ho seguito, insieme a Federica e Mimmo, il gruppo incaricato di portare le lettere ed il mondo e mentre svolgevamo le nostre mansioni, ho fatto la conoscenza di Samir, un ragazzo senegalese che frequenta la piazza e che ha tentato di trasformarmi in un maranza sotto ogni aspetto possibile.
+
+Arrivato il momento dell'evento, tutti noi ci mettiamo a lavorare il più possibile, io avevo il compito di registrare clip e montarle sul momento.
+Finito l'evento abbiamo aperto il  nostro buffet a tutte le persone che si trovavano li.
+
+È stata una giornata molto stancante ma piena di soddisfazioni.
