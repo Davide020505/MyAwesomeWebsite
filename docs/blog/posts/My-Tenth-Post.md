@@ -85,3 +85,11 @@ Arrivato il momento dell'evento, tutti noi ci mettiamo a lavorare il più possib
 Finito l'evento abbiamo aperto il  nostro buffet a tutte le persone che si trovavano li.
 
 È stata una giornata molto stancante ma piena di soddisfazioni.
+
+
+# Giornata Normale
+*19/05/25*
+
+Oggi tutti i gruppi hanno iniziato a lavorare per completare tutte le cose lasciate in sospeso.
+
+Io e Federica abbiamo passato tutta la giornata a cercare di finire il video dei loghi degli sponsor
