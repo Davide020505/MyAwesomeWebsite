@@ -92,4 +92,4 @@ Finito l'evento abbiamo aperto il  nostro buffet a tutte le persone che si trova
 
 Oggi tutti i gruppi hanno iniziato a lavorare per completare tutte le cose lasciate in sospeso.
 
-Io e Federica abbiamo passato tutta la giornata a cercare di finire il video dei loghi degli sponsor
+Io e Federica abbiamo passato tutta la giornata a cercare di finire il video dei loghi degli sponsor.
