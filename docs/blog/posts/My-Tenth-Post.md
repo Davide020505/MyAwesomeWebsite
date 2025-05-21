@@ -93,3 +93,19 @@ Finito l'evento abbiamo aperto il  nostro buffet a tutte le persone che si trova
 Oggi tutti i gruppi hanno iniziato a lavorare per completare tutte le cose lasciate in sospeso.
 
 Io e Federica abbiamo passato tutta la giornata a cercare di finire il video dei loghi degli sponsor.
+
+
+# Giornata Normale
+*20/05/25*
+
+Oggi noi del gruppo social abbiamo stilato un piano editoriale per organizzare tutto il lavoro che dobbiamo fare per l'evento a Pollica, abbiamo realizzato tutti i post che potessimo fare pre-pollica e abbiamo finito i lavori rimasti arretrati come il video dei loghi, il quale aveva finalmente trovato una direzione ma alla fine è stato completamente cancellato grazie all'intervento di Veronica.
+
+
+# Stato dell'arte
+*21/05/25*
+
+Oggi si è svolto lo stato dell'arte in cui ogni gruppo ha spiegato tutto quello che ha fatto dall'inizio dell'anno fino ad oggi.
+
+Durante lo stato dell'arte, io, Manu, Tullio e Jordan, andiamo a ritirare delle casse di redbull che la Redbull ha mandato allo studio di 218lab, i quali membri hanno deciso di dare un paio di casse anche al lab.
+
+Infine abbiamo tenuto una riunione per fare varie riflessioni su tutta la situazione in cui ci troviamo.
