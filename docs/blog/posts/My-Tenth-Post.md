@@ -109,3 +109,13 @@ Oggi si è svolto lo stato dell'arte in cui ogni gruppo ha spiegato tutto quello
 Durante lo stato dell'arte, io, Manu, Tullio e Jordan, andiamo a ritirare delle casse di redbull che la Redbull ha mandato allo studio di 218lab, i quali membri hanno deciso di dare un paio di casse anche al lab.
 
 Infine abbiamo tenuto una riunione per fare varie riflessioni su tutta la situazione in cui ci troviamo.
+
+
+# Ultimo Giorno Pre-Pollica
+*22/05/25*
+
+Nella riunione di sta mattina, abbiamo discusso a proposito di tutto il lato organizzativo per quando andremo a Pollica e sul comw ci muoveremo nel territorio.
+
+Dopo la riunione mattutina, noi di social e gruppo foto e video abbiamo fatto un'altra riuonione per capire come organizzarci per pollica e soprattutto per capire come collaborare.
+
+Il resto della giornata noi di social lo abbiamo passato a realizzare i post sempre relativi a Pollica.
