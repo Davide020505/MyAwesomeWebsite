@@ -119,3 +119,76 @@ Nella riunione di sta mattina, abbiamo discusso a proposito di tutto il lato org
 Dopo la riunione mattutina, noi di social e gruppo foto e video abbiamo fatto un'altra riuonione per capire come organizzarci per pollica e soprattutto per capire come collaborare.
 
 Il resto della giornata noi di social lo abbiamo passato a realizzare i post sempre relativi a Pollica.
+
+
+# Inizia il Viaggio
+*26/05/25*
+
+Oggi è il gran giorno della nosta partenza verso Pollica.
+
+Alle 8:00 ci siamo incontrati tutti davanti alla stazione di Napoli Centrale e alle 8:50 siamo partiti in treno e dopo circa 2 ore siamo arrivati a Vallo della Lucania, dalla quale siamo ripartiti con delle navette per arrivare a Pollica.
+
+Arrivati a Pollica, siamo andati a fare il check in nei nostri B&B, dopodiché ci siamo tutti riuniti al castello e dopo aver mangiato e fatto una riunione, abbiamo svolto il nostro primo itineraggio a Pollica distribuendo sfogliatelle alla gente del posto e invitandolo alla tavolata che avremmo organizzato il giorno 31 Maggio, io personalmente facendo parte del gruppo social, ho registrato e montato video a manetta durante tutta la giornata.
+
+A fine giornata abbiamo fatto una riunione, abbiamo cenato e ci siamo diretti nei nostri B&B.
+
+
+# Immersive Research ed il Fantasma di Garibaldi
+*27/05/25*
+
+Dopo aver fatto colazione sia al castello che da Jerry e aver fatto riunione, abbiamo svolto la nostra prima sessione di Immersive research, nella quale abbiamo cercato di capire come utilizzare l'esperienza vissuta a Pollica per continuare il nostro progetto a Piazza Garibaldi.
+
+Dopo pranzo abbiamo svolto un'altra sessione di itineraggio nel quale mi sono successi 2 eventi inaspettati.
+
+Il primo è stata l'ospitalità della signora Pasqualina che ci ha accolto in casa e offerto il limoncello;
+Il secondo è stato l'incontro con Garibaldi in persona che ci ha illuminato con le sue perle di saggezza.
+
+
+# Full Immersive
+*28/05/25*
+
+Oggi abbiamo svolto una giornata interamente dedicata all'immersive research e verso la sera, abbiamo fatto un'anteprima dell'evento facendo varie prove.
+
+
+# Una situazione inaspettata
+*29/05/25*
+
+Oggi dopo aver passato la mattinata a fare immersive research, all'orario di pranzo mi ritrovo nella situazione di accompagnare Mirco e Francesca Tortorelli all'interno della casa della signora Carmerla, la quale ci ha offerto il pranzo e ci ha dato il permesso di documentare il pranzo che abbiamo fatto insieme.
+
+È stata un'esperienza incredibile che non pensavo fosse neanche possibile.
+
+A fine della giornata abbiamo fatto una riunione per vedere i risultati ottenuti dall'immersive research.
+
+
+# Evento in Vista
+
+*30/05/25*
+Oggi durante tutta la mattinata ci siamo messi a fare tutte le prove necessarie in vista dell'evento di domani.
+
+Durante il pomeriggio abbiamo fatto una riunione con Vishwa
+
+
+# Presa di Coscienza
+*31/05/25*
+
+Oggi è il giorno dell'evento.
+
+Abbiamo fatto una riunione mattutina per organizzare tutto quello che dovevamo fare oggi per l'evento di stasera.
+
+Abbiamo iniziato facendo un pò di itineraggio per ricordare a tutte le persone di Pollica e dintorni che oggi era il giorno dell'evento.
+
+Tornati dall'itineraggio, abbiamo piazzato tutti i tavoli in piazza, dopodichè ci siamo messi a srotolare la tovaglia di 50 metri tutti insieme e a posizionarla sulla tavola, poi abbiamo installato i Cuori di Napoli lampeggianti sulla tavole e infine abbiamo apparecchiato la tavola.
+
+Finito di apparecchiare, noi dei gruppi host, tavolata e servers, ci siamo messi a fare una riunione per capire in che modo muoversi mentre facevamo da "camerieri" durante l'evento.
+
+Finalmente si fanno le 20:00, l'orario dell'inizio dell'evento.
+Ci rendiamo subito conto che le persone che erano venute all'evento erano ben più di quante ce ne  aspettassimo, si sono presentate ben più di 320 persone, per ovviare a questo situazione inaspettata, ci siamo dovuti adattare aggiungendo altri tavoli alla tavola centrale, facendola arrivare a 75 metri, ma che comunque non sono bastati e quindi abbiamo dovuto mettere un'altra tavolata separata di circa 15/20 metri.
+
+Sistemata la tavola, noi "camerieri" siamo finalmente partiti per servire la nostra prima portata, la focaccia yassa.
+Il servizio è andato alla grande anche durante tutto il resto della serata composto da altre due portate, l'Akara con sugo al pomodoro e la Thieamlbotta con riso, le bevande, i dolci e anche la raccolta della spazzatura.
+
+A fine del servizio, molti di noi sono andati a dare una mano in cucina a lavare tutti i piatti e i vassoi fino all'arrivo di Stefano e Franci che ci dicono di smetterla e di andare a festeggiare in piazza insieme a tutti gli altri.
+
+Verso le 23:45 abbiamo iniziato a smontare tutta la tavolata senza lasciare neanche una briciola a terra.
+
+Ed è cosí che la nostra impresa si è finalmente conclusa con un grandissimo successo.
