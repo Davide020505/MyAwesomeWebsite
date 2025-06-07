@@ -24,3 +24,9 @@ Sta mattina abbiamo fatto una riunione per parlare dei nostri pensieri ed emozio
 Poi ci siamo messi a sistemare tutte le cose che ci eravamo portati a Pollica all'interno del lab.
 
 Durante il pomeriggio abbiamo fatto l'ultima lezione di storia dell'arte.
+
+
+# Giornata Normale
+*04/06/25*
+
+Sta mattina, dopo la riuonione, mi sono messo ad aggiornare ed aggiustare alcuni schermi di complexus e nel mentre ho dato una mano a costruire la tavolata di 1 piano per il giorno della festa dei tesisti.
